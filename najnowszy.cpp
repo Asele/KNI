@@ -1,1 +1,2 @@
-bardzo lubie mini.
+bardzo lubie mini. xxxx
+
