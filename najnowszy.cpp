@@ -1,1 +1,1 @@
-bardzo lubie KMI. 
+bardzo lubie mini.
