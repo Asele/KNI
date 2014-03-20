@@ -1,0 +1,1 @@
+cos tu powinno byc
